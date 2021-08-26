@@ -1,3 +1,3 @@
 # shinynfts
-# shinynfts
-# shinynfts
+
+Rare ✨
